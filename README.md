@@ -1,2 +1,2 @@
 # kibodhouse.github.io
-Kibod house marketplace
+Get your mech kibod at affordable price here
